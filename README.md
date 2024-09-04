@@ -1,5 +1,5 @@
 ### Hi there 👋
-They said life is like a box of chocolates. You never know what you're going to get. But I have lost interest in finding out. I hope my final day comes sooner.
+They say life is like a box of chocolates. You never know what you're going to get. I’ve lost the curiosity to explore what’s next. I hope my final day comes sooner.
 <!--
 **mtzendo276/mtzendo276** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
